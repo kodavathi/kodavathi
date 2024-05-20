@@ -1,5 +1,5 @@
 - 👋 Hi, I’m kodavathi s
-- 👀 I’m interested in upgrowing technoligies
+- 👀 I’m interested in upgrowing technologies
 - 🌱 I’m currently pursuing BE.CSE
 - 📫 reach me out in linkedin @ kodavathi s
 - ⚡ Motto: "Excellence In Action"
